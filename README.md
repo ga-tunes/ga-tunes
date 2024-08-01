@@ -3,7 +3,6 @@
 `Me chame de Gustavo ou de docinho`
 `Call me by my name or sugar`
 
-Português
 
 - 💻 Estou estudando no GitHub [Alura](https://www.alura.com.br)
 - 📘 Etou desenvolvendo linguagem Javacript
