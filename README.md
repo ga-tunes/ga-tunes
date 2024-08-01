@@ -16,4 +16,4 @@ Português
 - 😄 Pronomes: ...Ele/dele
 - ⚡ Curiosidade: ...Eu sou um amante de gatinhos 😻
 
-![](https://media1.tenor.com/m/q9PX0ohvL3gAAAAd/gretchen-maria-odete-brito-de-miranda.gif)
+![](https://media1.tenor.com/m/VC-bqY7SGLMAAAAC/gretchen-pandlr.gif)
