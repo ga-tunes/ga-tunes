@@ -8,11 +8,11 @@
 - 📘 Etou desenvolvendo linguagem Javacript
 - 👜 Atualmente estou trabalhando em ...Contitech
 - 📖 Atualmente estou aprendendo ...TI
-- 👯 Estou procurando colaborar em ...Problemas de saúde mental
-- 🤔 Estou procurando ajuda com ...Aprender merda ou algo assim
-- 💬 Pergunte-me sobre ...Eu ou um dos meus problemas psicológicos
+- 👯 Estou procurando colaborar em ...Problemas 
+- 🤔 Estou procurando ajuda com ...Aprender algo assim
+- 💬 Pergunte-me sobre ...mim
 - 📫 Como entrar em contato comigo: ...Siga-me no meu insta 🌟ga_tunes🌟 (Amo vocês, pessoal)
 - 😄 Pronomes: ...Ele/dele
-- ⚡ Curiosidade: ...Eu sou um amante de gatinhos 😻
+- ⚡ Curiosidade: ...Eu sou um amante de gatos 😻
 
 ![](https://media1.tenor.com/m/VC-bqY7SGLMAAAAC/gretchen-pandlr.gif)
